@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+I'm into bicycle trips 🚲 and maps 🗺️
+
+From 🇫🇷, speaking also 🇬🇧 and a bit of 🇩🇪.
+
 <!--
 **sylvainavelo/sylvainavelo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
